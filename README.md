@@ -1,1 +1,5 @@
-# gexrge.github.io
+# George Hewitt
+
+## About me
+
+### Research Projects
